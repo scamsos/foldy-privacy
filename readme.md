@@ -23,4 +23,4 @@ PREMIUM LICENSING
 Purchases handled by Google via Chrome Web Store. Foldy only receives paid/unpaid status.
 
 CONTACT
-hello@getfoldy.com
+anatoliy.a.k.1985@gmail.com
